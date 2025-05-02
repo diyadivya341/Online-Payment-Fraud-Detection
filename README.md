@@ -6,7 +6,8 @@
 
 ![Screenshot 2025-05-02 152827](https://github.com/user-attachments/assets/ae177ea1-c551-4ff7-b7ce-4d1ed43c38e6)
 
-![Screenshot 2025-05-02 152827](https://github.com/user-attachments/assets/092eb2e0-d05a-45d1-810d-4b08e08b41de)
+![Screenshot 2025-05-02 152852](https://github.com/user-attachments/assets/d13cd9e2-0182-41ec-9b0c-a78fd97331ab)
+
 
 
 
